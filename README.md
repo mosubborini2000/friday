@@ -1,3 +1,3 @@
 # friday
 helloooooooooooooooooooooooooooooo
-![myphoto](./assets/5021- (3).jpg)
+![myphoto](./assets/pppp.jpg)
